@@ -1,0 +1,1 @@
+# Jurnal-Organisasi-dan-Manajemen-JOM-peer-review
